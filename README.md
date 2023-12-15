@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @DaisySkullCandy
+- I've been sailing the high seas since 9 years old. Good luck out there Captain. 😘
